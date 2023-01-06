@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 
 #### ✨ I don't give up my goals easily! I'm ready to discover this unknown world and to emerge for my evolution!
 
-##### 💬 "Whom take more risks improve the chances to get there!"
+##### 💬 "Who takes more risks improve the chances to get there!"
