@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 🌱 I’m currently learning the best technologies and applications to contribute in solutions for the future!
+# 🌱 I’m currently learning the best technologies and applications to contribute in solutions for the future:
+- HTML, CSS and JavaScript.
