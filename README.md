@@ -20,4 +20,4 @@ Here are some ideas to get you started:
 
 ##### 💬 "Who takes more risks improve the chances to get there!"
 
-[Linkedin](https://www.linkedin.com/in/renan-garcia-9467b818b/)
+- [Linkedin](https://www.linkedin.com/in/renan-garcia-9467b818b/)
