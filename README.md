@@ -18,6 +18,6 @@ Here are some ideas to get you started:
 
 #### ✨ I don't give up my goals easily! I'm ready to discover this unknown world and to emerge for my evolution!
 
-📫[LinkedIn](https://www.linkedin.com/in/renan-garcia-9467b818b/)
+📫 [LinkedIn](https://www.linkedin.com/in/renan-garcia-9467b818b/)
 
 ##### 💬 "Who takes more risks improve the chances to get there!"
