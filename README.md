@@ -1,4 +1,4 @@
-### Hi, I am Renan! 👋
+## Hi, I am Renan! 👋
 
 <!--
 **toddynan/toddynan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
